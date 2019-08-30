@@ -1,0 +1,1 @@
+# forty.hatenadiary.jp
